@@ -1,6 +1,6 @@
 Restored 1903 Craftsman, Garage and Large Back Yard
 
-Charming 1903 Craftsman with all of the modern conveniences located in the heart of the Central District.  Enjoy city living amidst the privacy of your own backyard retreat and picturesque front porch.  Beautifully restored open floor plan including original, refinished fir flooring and ample storage in a full basement with separate entry. Includes private parking with attached garage and plenty of off-street parking for guests. 
+Charming 1903 Craftsman with all of the modern conveniences located in the heart of the Central District.  Enjoy city living amidst the privacy of your own backyard retreat and picturesque front porch.  Beautifully restored open floor plan including original, refinished fir flooring and ample storage in a full basement with separate entry. Includes private parking with attached garage and plenty of off-street parking for guests.
 
 Great walkable neighborhood and ideal for commuters:
 • The Neighbor Lady, Cortona Café, and Uncle Ike’s all within one block.
@@ -20,4 +20,15 @@ Amenities:
 • Attached garage
 • Full basement
 
-More information available here: http://24thandunionrental.blogspot.com/
+![](img/1.jpg)
+![](img/2.jpg)
+![](img/3.jpg)
+![](img/4.jpg)
+![](img/5.jpg)
+![](img/6.jpg)
+![](img/7.jpg)
+![](img/8.jpg)
+![](img/9.jpg)
+![](img/10.jpg)
+![](img/11.jpg)
+![](img/12.jpg)
