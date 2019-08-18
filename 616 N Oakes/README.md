@@ -1,6 +1,6 @@
-# Newer North End Tri-level Townhome
+# Newer North End 3 Floor Townhome
 
-Newer, North End tri level townhome located in the heart of the popular 6th Ave district.  Walk to all your favorite restaurants and shops!  Minutes to UPS, Proctor, Stadium, and downtown.
+Newer, North End 3 floor townhome located in the heart of the popular 6th Ave district.  Walk to all your favorite restaurants and shops!  Minutes to UPS, Proctor, Stadium, and downtown.
 
 * 1125 square feet
 * Two bedrooms, each with full attached baths
