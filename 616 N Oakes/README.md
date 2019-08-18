@@ -13,9 +13,11 @@ Newer, North End tri level townhome located in the heart of the popular 6th Ave 
 * Private parking spot
 * Eco friendly radiant heating and on demand H2O saves on energy bills
 
-Zillow - https://www.zillow.com/homedetails/616-N-Oakes-St-B-Tacoma-WA-98406/118249028_zpid/?view=public
-Redfin - https://www.redfin.com/WA/Tacoma/616-N-Oakes-St-98406/unit-B/home/40493403
+# Links
+* Zillow - https://www.zillow.com/homedetails/616-N-Oakes-St-B-Tacoma-WA-98406/118249028_zpid/?view=public
+* Redfin - https://www.redfin.com/WA/Tacoma/616-N-Oakes-St-98406/unit-B/home/40493403
 
+# Images
 ![](img/1.jpg)
 ![](img/2.jpg)
 ![](img/3.jpg)

@@ -14,9 +14,11 @@ Amenities
 * Detached garage
 * Brand new hot water heater and furnace
 
-Zillow - https://www.zillow.com/homedetails/1414-N-Oakes-St-Tacoma-WA-98406/49214158_zpid/?view=public
-Redfin - https://www.redfin.com/WA/Tacoma/1414-N-Oakes-St-98406/home/2743975
+# Links
+* Zillow - https://www.zillow.com/homedetails/1414-N-Oakes-St-Tacoma-WA-98406/49214158_zpid/?view=public
+* Redfin - https://www.redfin.com/WA/Tacoma/1414-N-Oakes-St-98406/home/2743975
 
+# Images
 ![](img/1.jpg)
 ![](img/2.jpg)
 ![](img/3.jpg)
