@@ -20,9 +20,9 @@ Amenities:
 * Attached garage
 * Full basement
 
-Zillow - https://www.zillow.com/homedetails/1122-24th-Ave-Seattle-WA-98122/49024185_zpid/?view=public
-Refin - https://www.redfin.com/WA/Seattle/1122-24th-Ave-98122/home/146674
-Blog - http://24thandunionrental.blogspot.com/
+* Zillow - https://www.zillow.com/homedetails/1122-24th-Ave-Seattle-WA-98122/49024185_zpid/?view=public
+* Refin - https://www.redfin.com/WA/Seattle/1122-24th-Ave-98122/home/146674
+* Blog - http://24thandunionrental.blogspot.com/
 
 ![](img/1.jpg)
 ![](img/2.jpg)
