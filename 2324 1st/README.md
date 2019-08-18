@@ -24,9 +24,9 @@ Condo amenities include:
 Best of all, there's a Starbucks directly downstairs for that quick morning or afternoon fix!
 
 # Links
-* Zillow - https://www.zillow.com/homedetails/2324-1st-Ave-APT-413-Seattle-WA-98121/48682500_zpid/?view=public
-* Redfin - https://www.redfin.com/WA/Seattle/2324-1st-Ave-98121/unit-413/home/61969
-* Blog - http://austinbellcondorental.blogspot.com
+* [Zillow](https://www.zillow.com/homedetails/2324-1st-Ave-APT-413-Seattle-WA-98121/48682500_zpid/?view=public)
+* [Redfin](https://www.redfin.com/WA/Seattle/2324-1st-Ave-98121/unit-413/home/61969)
+* [Blog](http://austinbellcondorental.blogspot.com)
 
 # Images
 ![](img/1.jpg)
