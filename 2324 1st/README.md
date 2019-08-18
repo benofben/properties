@@ -10,16 +10,16 @@ Get to work in minutes by walking or riding your bike to Amazon, Nordstrom, Grou
 
 Condo amenities include:
 
-•   In-unit washer and dryer
-•   Hardwood floors
-•   Updated electrical wiring and cable access
-•   Separate storage unit
-•   Under ground/secured parking
-•   Roof-top deck
-•   Views of the Space Needle and the Monorail through an entire wall of windows
-•   Spacious enough for a king size bed
-•   Sewer, water and trash are all included in rent
-•   You only pay extra for electricity and internet access
+* In-unit washer and dryer
+* Hardwood floors
+* Updated electrical wiring and cable access
+* Separate storage unit
+* Under ground/secured parking
+* Roof-top deck
+* Views of the Space Needle and the Monorail through an entire wall of windows
+* Spacious enough for a king size bed
+* Sewer, water and trash are all included in rent
+* You only pay extra for electricity and internet access
 
 Best of all, there's a Starbucks directly downstairs for that quick morning or afternoon fix!
 
