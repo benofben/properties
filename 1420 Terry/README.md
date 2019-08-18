@@ -25,15 +25,15 @@ Don't miss this opportunity to live in a true luxury condominium in the heart of
 
 Lease price of $2,100 includes HOA dues, gas, water, sewer and trash. Tenant is responsible for electricity and cable/internet. Sorry no pets.
 
-![alt text][1.jpg]
-![alt text][2.jpg]
-![alt text][3.jpg]
-![alt text][4.jpg]
-![alt text][5.jpg]
-![alt text][6.jpg]
-![alt text][7.jpg]
-![alt text][8.jpg]
-![alt text][9.jpg]
-![alt text][10.jpg]
-![alt text][11.jpg]
-![alt text][12.jpg]
+![](1.jpg)
+![](2.jpg)
+![](3.jpg)
+![](4.jpg)
+![](5.jpg)
+![](6.jpg)
+![](7.jpg)
+![](8.jpg)
+![](9.jpg)
+![](10.jpg)
+![](11.jpg)
+![](12.jpg)
