@@ -27,7 +27,7 @@ Lease price of $2,100 includes HOA dues, gas, water, sewer and trash. Tenant is 
 
 Zillow - https://www.zillow.com/homedetails/1420-Terry-Ave-UNIT-1405-Seattle-WA-98101/60762418_zpid/?view=public
 Redfin - https://www.redfin.com/WA/Seattle/1420-Terry-Ave-98101/unit-1405/home/32692
-Blog -
+Blog - http://meridiancondorental.blogspot.com/
 
 ![](img/1.jpg)
 ![](img/2.jpg)
