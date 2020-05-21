@@ -7,7 +7,7 @@ Amenities include:
 * 1370 sqft
 * Three stories
 * Off street parking
-* Large, private en-suite master on top floor with attached balcony
+* Large, private en-suite master on top floor with attached balcony and walk in closet
 * Stainless steel appliances, Bosch dishwasher and gas range
 * Radiant floor heating and a tankless water heater for endless showers. 
 * Garden patio area perfect for a BBQ and to store kayaks
