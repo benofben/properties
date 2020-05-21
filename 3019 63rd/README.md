@@ -8,7 +8,7 @@ Amenities include:
 * Three stories
 * Off street parking
 * Master and bath on the top floor with a private balcony  
-* Bosch dishwasher, gas range
+* Stainless steel appliances, Bosch dishwasher and gas range
 * Radiant floor heating and a tankless water heater for endless showers. 
 * Garden patio area perfect for a BBQ and to store kayaks
 
