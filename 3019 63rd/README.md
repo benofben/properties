@@ -1,6 +1,8 @@
 # Alki Beach House
 
-Modern 3 bed, 2.25 bath Alki Beach house a block from restaurants and Alki Beach Park.  Ammenities include:
+Modern Alki Beach house a block from restaurants and Alki Beach Park.  Ammenities include:
+* 3 bed, 2.25 bath
+* 1370 sqft
 * Three stories
 * Off street parking
 * Master and bath on the top floor with a private porch  
