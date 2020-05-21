@@ -1,6 +1,6 @@
 # Alki Beach House
 
-Modern Alki Beach house a block from restaurants and Alki Beach Park.  Ammenities include:
+Modern Alki Beach house a block from restaurants and Alki Beach Park.  Steps from all the fun of Alki while at the same time private and secluded in your own freestanding house with no shared walls.  Ammenities include:
 * 3 bed, 2.25 bath
 * 1370 sqft
 * Three stories
