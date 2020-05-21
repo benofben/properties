@@ -1,6 +1,6 @@
 # Alki Beach House
 
-Modern Alki Beach house a block from restaurants and Alki Beach Park.  Steps from all the fun of Alki while at the same time private and secluded in your own freestanding house with no shared walls.  Wake up, get a coffee and go for a run on the beachside shared use path!  Watch for sea lions in the Sound while you kayak or paddle board.
+Modern Alki Beach house, a block from Alki Beach Park. Steps from all the fun of Alki, while still private and secluded in your own house with no shared walls. Perfect for outdoor enthusiasts! Take a bike ride or go for a run on the beachside shared use path! Look for sea lions in the Sound while you kayak or paddle board. Steps away to great restaurants and coffee shops. Come live your best life at Alki Beach!
 
 Amenities include:
 * 3 bed, 2.25 bath
