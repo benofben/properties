@@ -1,6 +1,6 @@
 # Alki Beach House
 
-Modern Alki Beach house a block from restaurants and Alki Beach Park.  Steps from all the fun of Alki while at the same time private and secluded in your own freestanding house with no shared walls.  Ammenities include:
+Modern Alki Beach house a block from restaurants and Alki Beach Park.  Steps from all the fun of Alki while at the same time private and secluded in your own freestanding house with no shared walls.  Wake up, get a coffee and go for a run on the beachside shared use path!  Ammenities include:
 * 3 bed, 2.25 bath
 * 1370 sqft
 * Three stories
@@ -10,7 +10,7 @@ Modern Alki Beach house a block from restaurants and Alki Beach Park.  Steps fro
 * Radiant floor heating and a tankless water heater for endless showers. 
 * Garden patio area perfect for a BBQ and to store kayaks
 
-Easily walk to Cactus, Top Pot, Harry's Beach House and Il Nido.  Nearby bus service to Downtown.  Free shuttle to the West Seattle Water Taxi and Admiral.
+Easily walk to Cactus, Top Pot, Harry's Beach House and Il Nido.  Nearby bus service to Downtown.  Free shuttle to the West Seattle Water Taxi and Admiral Junction.  Convenient to Alaska Junction.  Numerous grocery stores, including Metropolitan Market, PCC Community Market, Safeway and Whole Foods.
 
 # Images
 ![](img/1.jpg)
