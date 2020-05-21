@@ -9,21 +9,21 @@ Amenities include:
 * Off street parking
 * Large, private en-suite master on top floor with attached balcony and walk in closet
 * Stainless steel appliances, Bosch dishwasher and gas range
-* Radiant floor heating and a tankless water heater for endless showers. 
+* Radiant floor heating and a tankless water heater for endless showers.
 * Garden patio area perfect for a BBQ and to store kayaks
 
 Easily walk to Cactus, Top Pot, Harry's Beach House and Il Nido.  Nearby bus service to Downtown.  Free shuttle to the West Seattle Water Taxi and Admiral Junction.  Convenient to Alaska Junction.  Numerous grocery stores, including Metropolitan Market, PCC Community Market, Safeway and Whole Foods.
 
 # Images
-![](img/1.jpg)
-![](img/2.jpg)
-![](img/3.jpg)
-![](img/4.jpg)
-![](img/5.jpg)
-![](img/6.jpg)
-![](img/7.jpg)
-![](img/8.jpg)
-![](img/9.jpg)
+![](img/01.jpg)
+![](img/02.jpg)
+![](img/03.jpg)
+![](img/04.jpg)
+![](img/05.jpg)
+![](img/06.jpg)
+![](img/07.jpg)
+![](img/08.jpg)
+![](img/09.jpg)
 ![](img/10.jpg)
 ![](img/11.jpg)
 ![](img/12.jpg)
