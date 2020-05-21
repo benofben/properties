@@ -10,7 +10,7 @@ Modern Alki Beach house a block from restaurants and Alki Beach Park.  Ammenitie
 * Radiant floor heating and a tankless water heater for endless showers. 
 * Garden patio area perfect for a BBQ and to store kayaks
 
-Easily walk to Cactus, Top Pot, Harry's Beach House and Il Nido.  Nearby bus service to Downtown.  Free shuttle to the Alki water taxi and Admiral.
+Easily walk to Cactus, Top Pot, Harry's Beach House and Il Nido.  Nearby bus service to Downtown.  Free shuttle to the West Seattle Water Taxi and Admiral.
 
 # Images
 ![](img/1.jpg)
