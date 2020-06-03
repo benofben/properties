@@ -32,7 +32,6 @@ Easily walk to Cactus, Top Pot, Harry's Beach House and Il Nido.  Nearby bus ser
 ![](img/15.jpg)
 ![](img/16.jpg)
 ![](img/17.jpg)
-![](img/18.jpg)
 
 # Links
 * [Zillow](https://www.zillow.com/homedetails/3019-63rd-Ave-SW-Seattle-WA-98116/96672117_zpid/?view=public)
