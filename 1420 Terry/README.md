@@ -1,29 +1,24 @@
-# Spacious Downtown Condominium in Luxury Building Full of Amenities
+# Spacious High Rise Condo with free parking and storage unit
 
-This spacious one bedroom luxury condominium at The Meridian boasts breathtaking views of Capitol and First Hill. The Meridian is an ideal location for a corporate executive or that person looking for distinction. Spoil yourself with all the amenities of a luxury condominium with a clubroom, hot tub, steam room, workout room, guest suite and a 24-hour concierge.
+Live in one of Seattle's iconic high-rises, The Meridian.  99 walk score.  Perfectly situated to the lively Pike/Pine corridor, Downtown, Capitol Hill and First Hill.  Luxury amenities in HOA building including 24 hour concierge, fitness center, screening room, clubroom, hot tub, steam room and guest suite.
 
-Easy access to all downtown has to offer, including award winning restaurants, shopping, Public Market, Safeco and Century Link Fields, Seattle Symphony, SAM, Amazon, Nordstrom and Seattle Center.
-
-This condominium unit has all the benefits you would expect in a quality building like The Meridian, including:
-
-* Hardwood floors
+* 1 bdrm/1 bath
+* 14th floor 
+* Balcony with sweeping views of Capitol Hill and First Hill
+* Hardwood flooring
 * Granite countertops
 * Cherry wood cabinets
-* Stainless appliances
-* Microwave oven
+* Stainless steel appliances
+*	Microwave 
 * Dishwasher
 * Gas range
 * Gas fireplace
-* Air conditioner
 * Dishwasher
-* Washing machine and dryer in unit
-* Patio with scenic views of Lake Union
+* Washer and dryer in unit
 * Storage unit
-* Secured/underground parking is also included with unit
+* Secured/underground parking space
 
-Don't miss this opportunity to live in a true luxury condominium in the heart of downtown Seattle. The Meridian has very strict leasing limitations, so units in this exceptional building do not come on the market very often.
-
-Lease price of $2,100 includes HOA dues, gas, water, sewer and trash. Tenant is responsible for electricity and cable/internet. Sorry no pets.
+Lease price includes HOA dues, gas, water, sewer and trash. Parking and storage included. Tenant is responsible for electricity and cable/internet.
 
 # Links
 * [Zillow](https://www.zillow.com/homedetails/1420-Terry-Ave-UNIT-1405-Seattle-WA-98101/60762418_zpid/?view=public)
