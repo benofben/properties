@@ -1,4 +1,4 @@
-# Spacious High Rise Condo with free parking and storage unit
+# Spacious High Rise Condo with Free Parking and Storage Unit
 
 Live in one of Seattle's iconic high-rises, The Meridian.  99 walk score.  Perfectly situated to the lively Pike/Pine corridor, Downtown, Capitol Hill and First Hill.  Luxury amenities in HOA building including 24 hour concierge, fitness center, screening room, clubroom, hot tub, steam room and guest suite.
 
