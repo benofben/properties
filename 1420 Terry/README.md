@@ -2,18 +2,11 @@
 
 Live in one of Seattle's iconic high-rises, The Meridian.  99 walk score.  Perfectly situated to the lively Pike/Pine corridor, Downtown, Capitol Hill and First Hill.  Luxury amenities in HOA building including 24 hour concierge, fitness center, screening room, clubroom, hot tub, steam room and guest suite.
 
-* 1 bdrm/1 bath
-* 14th floor 
-* Balcony with sweeping views of Capitol Hill and First Hill
-* Hardwood flooring
-* Granite countertops
-* Cherry wood cabinets
-* Stainless steel appliances
-*	Microwave 
-* Dishwasher
-* Gas range
+* 1 bdrm/1 bath - 751 sqft
+* 14th floor balcony with sweeping views of Capitol Hill and First Hill
+* Hardwood floors, granite countertops and cherry wood cabinets
+* Stainless steel appliances - microwave, Miele dishwasher, Kitchen Aid fridge, gas range
 * Gas fireplace
-* Dishwasher
 * Washer and dryer in unit
 * Storage unit
 * Secured/underground parking space
