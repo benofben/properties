@@ -7,8 +7,8 @@ Modern North End 3 floor townhome located in the heart of the popular 6th Ave di
 * Open living space filled with natural light and 10 ft ceilings
 * Modern kitchen with stainless steel appliances
 * Half bath on main floor
-* Hardwood flooring throughout, berber carpeted bedrooms
-* Huge private rooftop complete with storage space and gas hook up for a grill. Perfect for summer BBQ?s!
+* Hardwood flooring throughout, carpeted bedrooms
+* Huge private rooftop complete with storage space and gas hook up for a grill. Perfect for summer BBQs!
 * LG frontloading washer and dryer
 * Private parking spot
 * Eco friendly radiant heating and on demand H2O saves on energy bills
