@@ -12,7 +12,7 @@ Amenities include:
 * Radiant floor heating and a tankless water heater for endless showers.
 * Garden patio area perfect for a BBQ and to store kayaks
 
-Easily walk to Cactus, Top Pot, Harry's Beach House and Il Nido.  Nearby bus service to Downtown.  Free shuttle to the West Seattle Water Taxi and Admiral Junction.  Convenient to Alaska Junction.  Numerous grocery stores, including Metropolitan Market, PCC Community Market, Safeway and Whole Foods.
+Easily walk to Cactus, Harry's Beach House and Il Nido.  Nearby bus service to Downtown.  Free shuttle to the West Seattle Water Taxi and Admiral Junction.  Convenient to Alaska Junction.  Numerous grocery stores, including Metropolitan Market, PCC Community Market, Safeway and Whole Foods.
 
 # Images
 ![](img/01.jpg)
