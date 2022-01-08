@@ -1,8 +1,13 @@
 # North Tacoma House
-Remodeled North Tacoma house.
+Recently remodeled North End house in a friendly neighborhood.  Large fenced yard, patio with gas grill hookup, two car garage.  New hardwood flooring downstairs.
 
 Amenities include:
 * 3 bed, 2.25 bath
+* 1475 sqft
+* Two stories
+* Two car garage
+* En-suite master with walk in closet
+* Stainless steel appliances and gas range
 
 # Images
 ![](img/01.jpg)
