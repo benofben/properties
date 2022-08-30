@@ -1,4 +1,4 @@
-# Historic Updated Studio in the Heart of Belltown, Parking Included
+# Historic Updated Studio in the Heart of Belltown, Parking and Storage Included
 
 Live the dream! In-city living in this wonderfully updated and spacious studio condo in the heart of Belltown!
 
