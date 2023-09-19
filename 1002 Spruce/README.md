@@ -1,12 +1,12 @@
 # Charming 1880 Craftsman
-Charming 1880 Craftsman located in the best location in Boulder, steps from the Pearl Street Mall and West End shops.  Large deck and flagstone patio perfect for entertaining and summer BBQ’s. Craftsman woodwork and hardwood floors. Open kitchen with professional range.  Laundry in partially finished basement.  Bonus finished attic space.
+Charming 1880 Craftsman located in the best location in Boulder, steps from the Pearl Street Mall and West End shops.  Large front porch and flagstone patio perfect for entertaining and BBQ’s. Craftsman woodwork and hardwood floors. Open kitchen with professional range.  Laundry in partially finished basement.  Bonus finished attic space.
 
 Amenities
 * 3bd/2ba
 * 1935 sq ft finished main floors, additional attic and basement space
 * Front porch
 * Side Patio
-* Thermador Gas range and stainless steel appliances
+* Thermador Gas range, Bosch dishwasher and stainless steel appliances
 * LG front loading washer and dryer
 * On demand water heater
 
