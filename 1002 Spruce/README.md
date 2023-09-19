@@ -1,18 +1,14 @@
-# Charming 1880
-
-Charming 1924 Craftsman located in the desirable North End neighborhood right next to UPS.  Beautifully restored open floor plan with picturesque front porch and fenced backyard. Large deck perfect for entertaining and summer BBQ’s. Original craftsman woodwork and gleaming refinished hardwood floors. Fully remodeled kitchen and laundry on main level. Private upper level master suite. Detached garage and ample storage in basement with separate entry.
-
-Great walkable neighborhood close to 6th Ave shops and restaurants. Close proximity to the Proctor, UPS, Old Town, and Downtown
+# Charming 1880 Craftsman
+Charming 1880 Craftsman located in the best location in Boulder, steps from the Pearl Street Mall and West End shops.  Large deck and flagstone patio perfect for entertaining and summer BBQ’s. Craftsman woodwork and hardwood floors. Open kitchen with professional range.  Laundry in partially finished basement.  Bonus finished attic space.
 
 Amenities
-* 3bd/1.75ba
-* 1668 sq ft finished, 520 sq ft unfinished basement
-* Gas fireplace
-* Gas range and stainless steel GE appliances
+* 3bd/2ba
+* 1935 sq ft finished main floors, additional attic and basement space
+* Front porch
+* Side Patio
+* Thermador Gas range and stainless steel appliances
 * LG front loading washer and dryer
-* Fenced backyard
-* Detached garage
-* Brand new hot water heater and furnace
+* On demand water heater
 
 # Links
 * [Zillow](https://www.zillow.com/homedetails/1002-Spruce-St-Boulder-CO-80302/13183187_zpid/?view=public)
