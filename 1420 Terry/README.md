@@ -31,3 +31,4 @@ Lease price includes HOA dues, gas, water, sewer and trash. Parking and storage 
 ![](img/10.jpg)
 ![](img/11.jpg)
 ![](img/12.jpg)
+![](img/13.jpg)
