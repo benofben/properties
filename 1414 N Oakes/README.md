@@ -12,7 +12,6 @@ Amenities
 * LG front loading washer and dryer
 * Fenced backyard
 * Detached garage
-* Brand new hot water heater and furnace
 
 # Links
 * [Zillow](https://www.zillow.com/homedetails/1414-N-Oakes-St-Tacoma-WA-98406/49214158_zpid/?view=public)
