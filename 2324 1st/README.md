@@ -1,12 +1,12 @@
 # Historic Updated Studio in the Heart of Belltown, Parking and Storage Included
 
-Live the dream! In-city living in this wonderfully updated and spacious studio condo in the heart of Belltown!
+Updated and spacious studio condo in the heart of Belltown.  Parking and storage area included.
 
-Yes, you can have it all!  Old world charm and modern-day advantages! Live in this wonderfully historic Seattle brick building with hardwood floors, while having the conveniences of updated electrical wiring, cable ready, dishwasher and an in-unit washer/dryer!  Not to mention parking... yes, underground/secured parking is included!  There's even a large storage unit included in the rent price.
+Wonderfully historic Seattle brick building with hardwood floors, with the conveniences of updated electrical wiring, cable ready, dishwasher and an in-unit washer/dryer.
 
-What a great location!  Walk to Seattle Art Museum or the Symphony, ride your bike and take in the sights at Sculpture Park, watch the fish fly at the Public Market, shop 'til you drop at all the fantastic downtown shops, or just relax and take in the view on the roof-top deck.
+Great location.  Walk to Seattle Art Museum or the Symphony, ride your bike and take in the sights at Sculpture Park, watch the fish fly at the Public Market, shop at all the fantastic downtown shops.
 
-Get to work in minutes by walking or riding your bike to Amazon, Nordstrom, Group Health, Starbucks, Queen Anne, Capitol Hill, South Lake Union or anywhere downtown!
+Get to work in minutes by walking to Amazon, Nordstrom, Group Health, Starbucks, Queen Anne, Capitol Hill, South Lake Union or anywhere downtown!
 
 Condo amenities include:
 
